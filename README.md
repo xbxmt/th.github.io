@@ -14,7 +14,9 @@
 * ---
 * [王文彬-子亲关系与情绪管理](https://www.asuswebstorage.com/navigate/a/#/s/4C572BE81A2E408EA19F6B236708F9F0Y)
 * [赵晓回应分享](https://www.asuswebstorage.com/navigate/a/#/s/F6926EE505224AF6B9747362E9F6B340Y)
-
+* ---
+* [王文彬：如何从孩子的角度理解家长，实现自我健康成长](https://www.asuswebstorage.com/navigate/a/#/s/174CB29BBD5E465DAD3497EA5746C470Y)
+* [赵晓回应分享](https://www.asuswebstorage.com/navigate/a/#/s/AC2A2FAE1F88419B9A5713669DFF0DD1Y)
 
 
 ### 七夕节-天道之爱
