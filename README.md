@@ -1,5 +1,9 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+### 润之路：日出之地
+
+* [Vivian：润之路：日出之地](https://www.asuswebstorage.com/navigate/a/#/s/BAD09015DE2E4920A5D1AC283B89B364Y)
+
 ### 暑期云上家庭·子亲特别活动
 
 * [王文彬：通过电子产品的迷恋探索子亲关系](https://www.asuswebstorage.com/navigate/a/#/s/EE3A8E83017A4F48986A320E8826E61DY)
