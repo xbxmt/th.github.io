@@ -1,5 +1,13 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+
+### 2022中秋一起听天歌
+
+* [2022中秋一起听天歌（上）](https://www.asuswebstorage.com/navigate/a/#/s/44A7D4CC87C642BB858B11518E9A4835Y)
+* [2022中秋一起听天歌（中）](https://www.asuswebstorage.com/navigate/a/#/s/BC68C9DDF29847B7BD9521072740331AY)
+* [2022中秋一起听天歌（下）](https://www.asuswebstorage.com/navigate/a/#/s/687FBA8353714902A93C8A0924A8AC21Y)
+
+
 ### 润之路：日出之地
 
 * [Vivian：润之路：日出之地](https://www.asuswebstorage.com/navigate/a/#/s/BAD09015DE2E4920A5D1AC283B89B364Y)
