@@ -1,5 +1,9 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+### 2022感恩节音乐见证会
+
+* [2022感恩节音乐见证会](https://www.asuswebstorage.com/navigate/a/#/s/341EFEB5031A4A229A40C3BE34EB1BF0Y)
+
 
 ### 2022中秋一起听天歌
 
