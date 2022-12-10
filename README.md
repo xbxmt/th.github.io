@@ -1,5 +1,13 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+### 2022-1212这天国的福音论坛
+第一单元：世界的光
+* [赵晓开场致辞-刘澎：加尔文主义与美国](https://www.asuswebstorage.com/navigate/a/#/s/3A7B0A3EA8DD42DDAA3CE741057EE13FY)
+* [陈佐人：保守主义与加尔文主义](https://www.asuswebstorage.com/navigate/a/#/s/A9C5EDD707324D30965AFA3DE5DEBFA4Y)
+* [赵晓：市场何以文明-加尔文主义的贡献](https://www.asuswebstorage.com/navigate/a/#/s/EB32F172B93C48379188D45D2A580041Y)
+* [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/F8D7A3C230F94A219C15CD05A101E542Y)
+
+
 ### 2022感恩节音乐见证会
 
 * [2022感恩节音乐见证会](https://www.asuswebstorage.com/navigate/a/#/s/341EFEB5031A4A229A40C3BE34EB1BF0Y)
