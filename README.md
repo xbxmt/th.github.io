@@ -7,6 +7,13 @@
 * [赵晓：市场何以文明-加尔文主义的贡献](https://www.asuswebstorage.com/navigate/a/#/s/EB32F172B93C48379188D45D2A580041Y)
 * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/F8D7A3C230F94A219C15CD05A101E542Y)
 
+第二单元：睡獅醒來
+* [王志勇：大使命与大转型](https://www.asuswebstorage.com/navigate/a/#/s/41D1430283BD467B93F0D32678B5F8B8Y)
+* [杨  鹏：从信仰角度看中国历史的演变](https://www.asuswebstorage.com/navigate/a/#/s/0A9F8680E3124F52BC6981742C575C6FY)
+* [王志勇：加尔文主义与中国文明转型](https://www.asuswebstorage.com/navigate/a/#/s/A49E7EC2B4B44B99845E6E3A4984F8A4Y)
+* [德雷克：明双目、开天眼、做长子](https://www.asuswebstorage.com/navigate/a/#/s/A2F4E3C1FC7C4DE3B08AF5C95EDCA141Y)
+* [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/37255DC4320346C4BBD95B6437FD25CAY)
+
 
 ### 2022感恩节音乐见证会
 
