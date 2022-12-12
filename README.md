@@ -14,6 +14,9 @@
 * [德雷克：明双目、开天眼、做长子](https://www.asuswebstorage.com/navigate/a/#/s/A2F4E3C1FC7C4DE3B08AF5C95EDCA141Y)
 * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/37255DC4320346C4BBD95B6437FD25CAY)
 
+第三單元:全球善商
+* [Livia Zhang：神的话，要传到地极！](https://www.asuswebstorage.com/navigate/a/#/s/6D62982458A142DE9FF2E4B1016A5C8FY)
+
 
 ### 2022感恩节音乐见证会
 
