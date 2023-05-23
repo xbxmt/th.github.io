@@ -1,5 +1,10 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+### 神州（青年）复兴赞美祷告会
+
+* [神州（青年）复兴赞美祷告会](https://www.asuswebstorage.com/navigate/a/#/s/79402B8A0AF94358B072858C5C8194ABY)
+
+
 ### 2023复活节超级见证会
 
 * [2023复活节超级见证会](https://www.asuswebstorage.com/navigate/a/#/s/599292C63A5F47DFB6B021D3A102A7F9Y)
