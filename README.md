@@ -6,7 +6,7 @@
 * [赵晓：时代变局与不变之道](https://www.asuswebstorage.com/navigate/a/#/s/ECE4C7581F6141C8AA7571EBB7357A78Y)
 * [陈震民：隐形冠军—案例与思考](https://www.asuswebstorage.com/navigate/a/#/s/9B50F49120464BAF87C39AFCD6F57A47Y)
 * [德雷克：在商言商](https://www.asuswebstorage.com/navigate/a/#/s/06962FA8D1694ED79D6263A5A2444814Y)
-* [黄靓：新西兰华人主内商人的故事](https://www.asuswebstorage.com/navigate/a/#/s/3F5C6DFC91334640AEC0656ADAB2FC54Y)
+* [黄靓：新西兰华人主内商人的故事](https://www.asuswebstorage.com/navigate/a/#/s/3704AE9D13FB45138E6A3AAF5F9E7571Y)
 * [Charles：新西兰房市—我来了，我看见了](https://www.asuswebstorage.com/navigate/a/#/s/3F5C6DFC91334640AEC0656ADAB2FC54Y)
 * [曲大卫：新西兰国家与市场—我的看见](https://www.asuswebstorage.com/navigate/a/#/s/3F5C6DFC91334640AEC0656ADAB2FC54Y)
 * [丁弟兄吴姐妹 (见证)：做神国侠侣、走天国道路](https://www.asuswebstorage.com/navigate/a/#/s/3F5C6DFC91334640AEC0656ADAB2FC54Y)
