@@ -1,6 +1,10 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+### 为耶路撒冷求平安
 
+* [为耶路撒冷求平安](https://www.asuswebstorage.com/navigate/a/#/s/3816A4CD7A95403F8CF84EB954EFDA37Y)
+
+* 
 ### 神州更新祷告会
 
 * [赵晓：中国经济分析与属灵思考](https://www.asuswebstorage.com/navigate/a/#/s/3F5C6DFC91334640AEC0656ADAB2FC54Y)
