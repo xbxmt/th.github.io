@@ -4,7 +4,7 @@
 
 * [为耶路撒冷求平安](https://www.asuswebstorage.com/navigate/a/#/s/3816A4CD7A95403F8CF84EB954EFDA37Y)
 
-* 
+
 ### 神州更新祷告会
 
 * [赵晓：中国经济分析与属灵思考](https://www.asuswebstorage.com/navigate/a/#/s/3F5C6DFC91334640AEC0656ADAB2FC54Y)
