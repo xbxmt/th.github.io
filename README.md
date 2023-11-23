@@ -1,5 +1,10 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+### 2023爱的感恩节：LOVE敬拜团音乐分享特会
+
+* [2023爱的感恩节：LOVE敬拜团音乐分享特会](https://www.asuswebstorage.com/navigate/a/#/s/94372B6DBC744C10ACC91F9CF166F678Y)
+
+  
 ### 为耶路撒冷求平安
 
 * [为耶路撒冷求平安](https://www.asuswebstorage.com/navigate/a/#/s/3816A4CD7A95403F8CF84EB954EFDA37Y)
