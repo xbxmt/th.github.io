@@ -1,5 +1,12 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+
+### 犹太教、基督教、伊斯兰教的溯源与现今世界的影响
+
+* [犹太教、基督教、伊斯兰教的溯源与现今世界的影响](https://www.asuswebstorage.com/navigate/a/#/s/33726B19063C4B57A68DDFA6E66900C7Y)
+* [互动交流](https://www.asuswebstorage.com/navigate/a/#/s/C16E95F3201F42E593E83740F8345CD2Y)
+
+
 ### 2023爱的感恩节：LOVE敬拜团音乐分享特会
 
 * [2023爱的感恩节：LOVE敬拜团音乐分享特会](https://www.asuswebstorage.com/navigate/a/#/s/94372B6DBC744C10ACC91F9CF166F678Y)
