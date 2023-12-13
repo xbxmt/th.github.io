@@ -1,14 +1,14 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 
-### 全球冲突与基督信仰 ——1212论坛20232012—2023）-更新ing…………
-* [开场致辞]()
-* [刘军宁：中国是一个圣经现象]()
-* [刘澎：全球冲突中的宗教极端主要以与恐怖主义]()
-* [王志勇：华人教会何以面对当前全球冲突?]()
-* [张坦：十字架与十字军]()
-* [德雷克：高等级文明的内生性缺陷]()
-* [赵晓：如何看待当今的全球冲突?]()
+### 全球冲突与基督信仰 ——1212论坛20232012—2023）
+* [开场致辞](https://www.asuswebstorage.com/navigate/a/#/s/197615F7EF8F45FCB6B60F05798D5930Y)
+* [刘军宁：中国是一个圣经现象](https://www.asuswebstorage.com/navigate/a/#/s/7DE98D4B3A454FF69DCA00AF305906E2Y)
+* [刘澎：全球冲突中的宗教极端主要以与恐怖主义](https://www.asuswebstorage.com/navigate/a/#/s/102543AD95334D918DD483EE5BA09834Y)
+* [王志勇：华人教会何以面对当前全球冲突?](https://www.asuswebstorage.com/navigate/a/#/s/0DF47525BDF345FE93C5B734E68A5B50Y)
+* [张坦：十字架与十字军](https://www.asuswebstorage.com/navigate/a/#/s/9D969670AE534B91859CF81AA4ED5F5CY)
+* [德雷克：高等级文明的内生性缺陷](https://www.asuswebstorage.com/navigate/a/#/s/E6C3614D031A45BE969416BB0BD0309DY)
+* [赵晓：如何看待当今的全球冲突?](https://www.asuswebstorage.com/navigate/a/#/s/E6197FF2B1774702AAFCD867562D614FY)
 
 
 ### 犹太教、基督教、伊斯兰教的溯源与现今世界的影响
