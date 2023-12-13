@@ -1,7 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 
-### 全球冲突与基督信仰 ——1212论坛20232012—2023）
+### 全球冲突与基督信仰 ——1212论坛2023（2012—2023）
 * [开场致辞](https://www.asuswebstorage.com/navigate/a/#/s/197615F7EF8F45FCB6B60F05798D5930Y)
 * [刘军宁：中国是一个圣经现象](https://www.asuswebstorage.com/navigate/a/#/s/7DE98D4B3A454FF69DCA00AF305906E2Y)
 * [刘澎：全球冲突中的宗教极端主要以与恐怖主义](https://www.asuswebstorage.com/navigate/a/#/s/102543AD95334D918DD483EE5BA09834Y)
