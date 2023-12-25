@@ -1,6 +1,9 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 
+### 荣耀都归祂：平安夜圣诞节音乐见证特会（小羊诗歌）
+* [荣耀都归祂：平安夜圣诞节音乐见证特会（小羊诗歌）](https://www.asuswebstorage.com/navigate/a/#/s/25A64C61D8324CCBAD3E88C6F3243499Y)
+  
 ### 全球冲突与基督信仰 ——1212论坛2023（2012—2023）
 * [开场致辞](https://www.asuswebstorage.com/navigate/a/#/s/197615F7EF8F45FCB6B60F05798D5930Y)
 * [刘军宁：中国是一个圣经现象](https://www.asuswebstorage.com/navigate/a/#/s/7DE98D4B3A454FF69DCA00AF305906E2Y)
