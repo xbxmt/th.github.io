@@ -1,15 +1,17 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+
+### 2024复活节特会：复活·重生·盼望 ——基督复活与中国转化
+* [2024复活节特会](https://www.asuswebstorage.com/navigate/a/#/s/7833226DC41541B5A4AA5C8EAC8BE64FY)
+
+  
 ### 2024新中华文明论坛
 * [刘军宁：老子与西塞罗](https://www.asuswebstorage.com/navigate/a/#/s/2F4FF1356B66470BAECF2BF708D6AE87Y)
 * [杨鹏：古代中国“上帝”概念与《圣经》“上帝”概念的异同](https://www.asuswebstorage.com/navigate/a/#/s/986167B1E8C348CD8259C7946CF869C3Y)
-* [王志勇：“三化”异象与中国文明转型] (更新中……)
 * [集百家：中医与圣经的契合](https://www.asuswebstorage.com/navigate/a/#/s/5F0ECCBA55BE448490F70C5246CB8378Y)
-* [张坦] (更新中……)
 * [吴国盛：科学、基督教与中国古代技术成就](https://www.asuswebstorage.com/navigate/a/#/s/BE9346BB03074D9192EF60ABC3D7F054Y)
 * [德雷克：信实和确据--如何看待中国古代的技术成就](https://www.asuswebstorage.com/navigate/a/#/s/0D1321941A7544C391D09C062833BDDBY)
 * [赵晓：基督与文化的五种观点](https://www.asuswebstorage.com/navigate/a/#/s/56EBB3C670CA4755AEBD6EDBEF5E7F39Y)
-* [沙龙对话] (更新中……)
 
 
 ### 2024神州更新新春特会
