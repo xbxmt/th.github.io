@@ -4,9 +4,6 @@
 ###  “每周一课”特别活动：年中同学会
 * [年中同学会](https://www.asuswebstorage.com/navigate/a/#/s/D58F38FB2F4243CD85FB3F5C39EEA639Y)
 
-### 2024复活节特会：复活·重生·盼望 ——基督复活与中国转化
-* [2024复活节特会](https://www.asuswebstorage.com/navigate/a/#/s/7833226DC41541B5A4AA5C8EAC8BE64FY)
-
   
 ### 2024新中华文明论坛
 * [刘军宁：老子与西塞罗](https://www.asuswebstorage.com/navigate/a/#/s/2F4FF1356B66470BAECF2BF708D6AE87Y)
