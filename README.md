@@ -1,6 +1,11 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 
+
+###  “感恩·分享·成长——感恩节特别活动”
+* [年中同学会](https://www.asuswebstorage.com/navigate/a/#/s/C64D77642DC44B57BE334D0838FB4169Y)
+
+
 ###  “每周一课”特别活动：年中同学会
 * [年中同学会](https://www.asuswebstorage.com/navigate/a/#/s/D58F38FB2F4243CD85FB3F5C39EEA639Y)
 
