@@ -3,7 +3,7 @@
 
 
 ###  “感恩·分享·成长——感恩节特别活动”
-* [年中同学会](https://www.asuswebstorage.com/navigate/a/#/s/C64D77642DC44B57BE334D0838FB4169Y)
+* [“感恩·分享·成长——感恩节特别活动”](https://www.asuswebstorage.com/navigate/a/#/s/C64D77642DC44B57BE334D0838FB4169Y)
 
 
 ###  “每周一课”特别活动：年中同学会
