@@ -7,7 +7,7 @@
 * [杨鹏：人是被损伤的上帝的形象——兼论基督教与儒家圣人观的异同](https://www.asuswebstorage.com/navigate/a/#/s/88C8DB96942C43B7A8AC996B2AE4BC30Y)
 * [王志勇：洛桑回来再谈“三化异象”——兼论福音主义与加尔文主义的比较](https://www.asuswebstorage.com/navigate/a/#/s/E2F5827AB9F14AEF9CBCCEFB79114190Y)
 * [刘军宁：世界是个圣经现象](https://www.asuswebstorage.com/navigate/a/#/s/A92ED832DFF7465F9F75B78B970AB7C7Y)
-* [郭于华：当前中国社会观察](https://www.asuswebstorage.com/navigate/a/#/s/A5DA3F42DC234B63A4C081ACEC0BD109Y)
+* [郭于华：当前中国社会观察](https://www.asuswebstorage.com/navigate/a/#/s/54CB5536513E48DB9C274E658372C504Y)
 * [张映光：美国大选中的媒体之战](https://www.asuswebstorage.com/navigate/a/#/s/2440F8D7DC484795AD7B8EF721F0D138Y)
 * [赵晓：川普2.0与世界经济格局的大震荡](https://www.asuswebstorage.com/navigate/a/#/s/D26B35FD56344237AD2A3353218364EBY)
 
