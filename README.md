@@ -1,5 +1,13 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+###  1212春季论坛：俄乌战争与世界文明
+* [赵晓开幕致辞](https://www.asuswebstorage.com/navigate/a/#/s/DC0B051540D04058B6A71E80FAB4092DY)
+* [王志勇：基督徒当如何对待公义、战争与逼迫](https://www.asuswebstorage.com/navigate/a/#/s/F3EF3F6E055F41A08ED4CAB498A88D43Y)
+* [刘军宁：从保守主义看俄乌冲突与世界秩序](https://www.asuswebstorage.com/navigate/a/#/s/D0F9C7B2CA574AE0A512D25B0C85B984Y)
+* [刘澎：拜登比普京更需要这场战争](https://www.asuswebstorage.com/navigate/a/#/s/9F2B816FDCFB42B0A1A834C383192261Y)
+* [张映光：媒体信息战、舆论导向与社会认知](https://www.asuswebstorage.com/navigate/a/#/s/EDADAA30C0E5428891EF381C3D646F64Y)
+* [赵晓：观察世界的大视野：两大战争与‘三国演义’](https://www.asuswebstorage.com/navigate/a/#/s/B8433DB9097B4AD7AAFB67FF62BB5A06Y)
+* [综合问答 / 自由讨论](https://www.asuswebstorage.com/navigate/a/#/s/0E27EFA2AD4647A7BD7A1EAE00F71229Y)
 
 
 ###  2024平安夜 圣诞节特别活动🎄赞耶稣诞生 与基督同行：香柏原创赞美音乐会
