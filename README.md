@@ -1,5 +1,10 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+###  2025复活节-谁说复活节必须标准？
+* [谁说复活节必须标准？](https://www.asuswebstorage.com/navigate/a/#/s/2FF8F3E1096644C2B506D1A71477DA93Y)
+
+
+
 ###  1212春季论坛：俄乌战争与世界文明
 * [赵晓开幕致辞](https://www.asuswebstorage.com/navigate/a/#/s/DC0B051540D04058B6A71E80FAB4092DY)
 * [王志勇：基督徒当如何对待公义、战争与逼迫](https://www.asuswebstorage.com/navigate/a/#/s/F3EF3F6E055F41A08ED4CAB498A88D43Y)
