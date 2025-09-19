@@ -9,7 +9,7 @@
 * [刘军宁：自由主义的危机对查理·柯克事件的评析](https://www.asuswebstorage.com/navigate/a/#/s/218461AF57784537BF5DB26B8FD6E169Y)
 * [冯雪薇：圣经律法与人间法治-文明与秩序的重建](https://www.asuswebstorage.com/navigate/a/#/s/3AC88A15A1C04389A831973D97FB7F93Y)
 * [张映光：媒体叙事与信仰公共化的挑战](https://www.asuswebstorage.com/navigate/a/#/s/10904812CE9B4731851A031EFC2E341CY)
-* [综合问答 / 自由讨论]()更新中……
+* [综合问答 / 自由讨论](https://www.asuswebstorage.com/navigate/a/#/s/0413A4FB14454C1785DC2854C7E9C952Y)
 
 
 ###  2025复活节-谁说复活节必须标准？
