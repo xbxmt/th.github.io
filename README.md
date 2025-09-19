@@ -1,9 +1,19 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+
+
+###  “1212”特别论坛：柯克之死与公共信仰
+* [开幕致辞](https://www.asuswebstorage.com/navigate/a/#/s/4A4689C16CD24C2A9EFAB96FCF601370Y)
+* [王志勇：信仰为何要公共化](https://www.asuswebstorage.com/navigate/a/#/s/53DD11A2DEC443B9B8D91AAF87625850Y)
+* [赵晓：偏航与回转-教会沉睡的代价与公共信仰的再出发](https://www.asuswebstorage.com/navigate/a/#/s/D030C082AC8A4B5EB40EDCCAADE1D2E9Y)
+* [刘军宁：自由主义的危机对查理·柯克事件的评析](更新中……)
+* [冯雪薇：圣经律法与人间法治-文明与秩序的重建](更新中……)
+* [张映光：媒体叙事与信仰公共化的挑战](更新中……)
+* [综合问答 / 自由讨论](更新中……)
+
+
 ###  2025复活节-谁说复活节必须标准？
 * [谁说复活节必须标准？](https://www.asuswebstorage.com/navigate/a/#/s/2FF8F3E1096644C2B506D1A71477DA93Y)
-
-
 
 ###  1212春季论坛：俄乌战争与世界文明
 * [赵晓开幕致辞](https://www.asuswebstorage.com/navigate/a/#/s/DC0B051540D04058B6A71E80FAB4092DY)
