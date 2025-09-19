@@ -8,7 +8,7 @@
 * [赵晓：偏航与回转-教会沉睡的代价与公共信仰的再出发](https://www.asuswebstorage.com/navigate/a/#/s/D030C082AC8A4B5EB40EDCCAADE1D2E9Y)
 * [刘军宁：自由主义的危机对查理·柯克事件的评析](https://www.asuswebstorage.com/navigate/a/#/s/218461AF57784537BF5DB26B8FD6E169Y)
 * [冯雪薇：圣经律法与人间法治-文明与秩序的重建](https://www.asuswebstorage.com/navigate/a/#/s/3AC88A15A1C04389A831973D97FB7F93Y)
-* [张映光：媒体叙事与信仰公共化的挑战]()更新中……
+* [张映光：媒体叙事与信仰公共化的挑战](https://www.asuswebstorage.com/navigate/a/#/s/10904812CE9B4731851A031EFC2E341CY)
 * [综合问答 / 自由讨论]()更新中……
 
 
