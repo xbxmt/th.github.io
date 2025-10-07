@@ -2,6 +2,17 @@
 
 
 
+###  “1212”特别论坛：文明转型与信仰更新
+* [刘军宁：战后日本与神定秩序](https://www.asuswebstorage.com/navigate/a/#/s/7D11D3F5909E4091BCBC8C2A394FDA30Y)
+* [蔡慎坤：当下时局、文明反思与对日看法](https://www.asuswebstorage.com/navigate/a/#/s/0B00D27E38E34F1BAB1E7FA550AC2F1DY)
+* [赵晓：基督教与中日文明转型](https://www.asuswebstorage.com/navigate/a/#/s/7D799E635211438682B9727791D4EBB3Y)
+* [刘澎：从查理柯克事件看福音派对美国社会的影响](https://www.asuswebstorage.com/navigate/a/#/s/ACC0E28E18F44D3FAC5C5DB1CA25312EY)
+* [张乔木：“恶魔式意志”自由主义的异化之路](https://www.asuswebstorage.com/navigate/a/#/s/3E20752C9B5E4700AA8155FBBB65FB05Y)
+* [论坛对话](https://www.asuswebstorage.com/navigate/a/#/s/48017367245E442CA999740C3CBBED0DY)
+
+
+
+
 ###  “1212”特别论坛：柯克之死与公共信仰
 * [开幕致辞](https://www.asuswebstorage.com/navigate/a/#/s/4A4689C16CD24C2A9EFAB96FCF601370Y)
 * [王志勇：信仰为何要公共化](https://www.asuswebstorage.com/navigate/a/#/s/53DD11A2DEC443B9B8D91AAF87625850Y)
